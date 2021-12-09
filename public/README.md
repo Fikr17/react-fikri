@@ -1,0 +1,1 @@
+folder ini tidak boleh diganggu gugat/di edit/dihapus salah satunya
